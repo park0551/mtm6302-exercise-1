@@ -1,1 +1,4 @@
-# mtm6302-exercise-1
+##### Name: 
+Jaehee Taylor Park
+##### Student Number: 
+041034635
